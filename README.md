@@ -86,7 +86,7 @@ check-in后花莲夜市（貌似指的是南滨夜市）散策，据说美好的
 ### 7月16日 垦丁
 
 垦丁住宿  
-[Airbnb - 竹蜻蜓民宿](https://zh.airbnb.com/rooms/902980?checkin=2015-07-15&checkout=2015-07-18&guests=8&s=cHAY) 位置极好，就在垦丁大街旁，夜市酒吧步行1分钟;
+[Airbnb - 竹蜻蜓民宿](https://zh.airbnb.com/rooms/902980?checkin=2015-07-15&checkout=2015-07-18&guests=8&s=cHAY) 位置极好，就在垦丁大街旁，夜市酒吧步行1分钟，人均172rmb/d;
 
 ### 7月17日 垦丁
 ### 7月18日 垦丁->台北，台北
