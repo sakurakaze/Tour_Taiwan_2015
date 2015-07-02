@@ -16,6 +16,7 @@
 - 台湾物价正常，不要慌张；
 - 去了就是买买买吃吃吃，预算多准备一些，8k左右（包含机票住宿），咱别太寒碜了（颤抖），带个大些的行李箱不会错的；  
 ![因为穷](http://i1.tietuku.com/378e4b557ce50af8.jpg)
+
 ### 到达后
 - 三大运行商漫游资费：**联通** 通话0.96元/min，5元/MB；**电信** 1.99元/min，3元/MB；**移动** 0.99元/min，3元3MB流量包；鉴于三大流氓这么坑，我们就在着陆的桃园机场办理呆湾运营商的预付费卡，资费如下表（其中只有**台湾大哥大**，提供4G入网([预付费卡资费](https://www.taiwanmobile.com/mobile/prePay/internet/index_2.html#.VZLqT_mqoSU)),所以大概会选择这一家，无限上网充值卡即不限流量，具体去了再看）
 ![](http://cdn.sspai.com/attachment/thumbnail/2014/09/29/b6d5da63800ee4326c31791b46e2c2142c302_mw_800_wm_1_wmp_3.jpg)
