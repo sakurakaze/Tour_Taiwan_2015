@@ -89,10 +89,13 @@ check-in后花莲夜市（貌似指的是南滨夜市）散策，据说美好的
 ### 7月14日 花莲
 ### 7月15日 花莲，花莲->垦丁
 
-### 7月16日 垦丁
-
 垦丁住宿  
-[Airbnb - 竹蜻蜓民宿](https://zh.airbnb.com/rooms/902980?checkin=2015-07-15&checkout=2015-07-18&guests=8&s=cHAY) 位置极好，就在垦丁大街旁，夜市酒吧步行1分钟，人均172rmb/d;
+[荷风旅店](https://www.booking.com/hotel/tw/he-feng-min-su.zh-cn.html?sid=efc403d1e964b8e509fd72b7612a12c7;dcid=2)定了两件豪华海景房，阳台望出去的风景碉堡，带早餐，18:30之前免费提供去垦丁大道的班车，人均稍贵206rmb/d，但是看在海景的份上！    
+※须在15：00~18：50之间check-in  
+
+~~[Airbnb - 竹蜻蜓民宿](https://zh.airbnb.com/rooms/902980?checkin=2015-07-15&checkout=2015-07-18&guests=8&s=cHAY) 位置极好，就在垦丁大街旁，夜市酒吧步行1分钟;~~
+
+### 7月16日 垦丁
 
 ### 7月17日 垦丁
 ### 7月18日 垦丁->台北，台北
