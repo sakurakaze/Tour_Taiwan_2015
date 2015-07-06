@@ -2,7 +2,7 @@
 *兄贵刘子尧最后编辑于2015年7月1日，消息均来自互联网，坑了不是我的锅*
 
 台湾旅游地图镇楼  
-![台湾旅游地图镇楼](http://img.bendibao.com/szbdb/201211/23/201211231108303906.jpg)
+![台湾旅游地图镇楼](http://i1.tietuku.com/c50ca69650745e7d.jpg)
 ## 注意事项（杂）
 ### 赴台前
 - **一定要**保管好台湾通行证和入台证，入台证请事先在dpi600以上的**彩色打印机**打印多份，分散放置备用，注意一定要**彩打**啊；
@@ -72,7 +72,7 @@
     
 花莲住宿4日3泊  
 由于Airbnb需要预付款，并不能承受一次3、4k的垫付，故还是用了booking.com预定   
-[花莲丽格休闲饭店](http://www.booking.com/hotel/tw/liga.zh-cn.html?sid=efc403d1e964b8e509fd72b7612a12c7;dcid=4;checkin=2015-07-12;checkout=2015-07-15;dist=0;group_adults=3;group_adults=4;group_children=0;group_children=0;group_rooms=49991203_82366516_0_1_3_0_0%2C49991204_82366516_0_1_4_0_0;req_adults=7;req_children=0;srfid=e83b1f3b084f2ae9d330ce6cf57776ee89528a90X7;type=total;ucfs=1&) 地点依旧很好，带早餐，人均149rmb/d;  
+[花莲丽格休闲饭店](http://www.booking.com/hotel/tw/liga.zh-cn.html?sid=efc403d1e964b8e509fd72b7612a12c7;dcid=4;checkin=2015-07-12;checkout=2015-07-15;dist=0;group_adults=3;group_adults=4;group_children=0;group_children=0;group_rooms=49991203_82366516_0_1_3_0_0%2C49991204_82366516_0_1_4_0_0;req_adults=7;req_children=0;srfid=e83b1f3b084f2ae9d330ce6cf57776ee89528a90X7;type=total;ucfs=1&) 四星级，地点依旧很好，带早餐，人均149rmb/d;  
 
 ~~我找了一下民宿感觉不错的是~~  
 ~~[Airbnb - KnockInn Hostel 諾客背包客棧](https://zh.airbnb.com/rooms/6306638?checkin=2015-07-12&checkout=2015-07-15&guests=8&s=f2JW "KnockInn Hostel 諾客背包客棧") 市中心，火车站步行5min，自强夜市5min车程，人均126rmb/d;~~  
